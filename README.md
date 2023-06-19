@@ -41,7 +41,7 @@
 ![005](https://github.com/camping-us/.github/assets/62806067/82edb41c-fbb4-40f8-a9a2-d7d57de3d079)
 ![006](https://github.com/camping-us/.github/assets/62806067/b52f2844-fed7-48d5-98ac-8763bfcc331b)
 ![007](https://github.com/camping-us/.github/assets/62806067/b81f5966-80ee-4add-a1e7-b3b6015aaeb4)
-![008](https://github.com/camping-us/.github/assets/62806067/655fdd81-0319-46b3-a610-7a1cf8733ca5)
+![008](https://github.com/camping-us/.github/assets/62806067/655fdd81-0319-46b3-a610-7a1cf8733ca5)https://youtu.be/z8vka36tbmg
 ![009](https://github.com/camping-us/.github/assets/62806067/55a12abe-42f7-46ea-bb5c-e27c2b06419f)
 
 
